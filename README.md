@@ -1,1 +1,0 @@
-# C_ASSIGNMENT_1
